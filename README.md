@@ -1,4 +1,4 @@
-### Hi there 👋
+### Gachon University student 202334511 이우정 👋
 
 <!--
 **friendship04/friendship04** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
